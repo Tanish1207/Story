@@ -1,0 +1,1 @@
+One morning, Pig 1(Johnny) was walking down the street. As he approached the neighborhood, Pig 1 spots a wolf. Pig 1 quickly builds a house out of wood. However, the wolf uses his strength and blows away the house and eating the pig.
